@@ -23,6 +23,14 @@
 	* https://www.ptt.cc/bbs/car/M.1537074832.A.9C6.html
 
 
+# T #
+
+## twin1949tw ##
+
+* 2019/09/30
+	* https://www.ptt.cc/bbs/DSLR/M.1569842245.A.8E7.html
+
+
 # W #
 
 ## wang19980531 ##
